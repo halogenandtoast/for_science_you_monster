@@ -1,4 +1,4 @@
-for_science_you_monster
-=======================
+For Science, You Monster
+========================
 
-The greatest minds of the world answer the toughest questions with their fists.
+The greatest minds of the world answer the toughest questions - WITH THEIR FISTS!
